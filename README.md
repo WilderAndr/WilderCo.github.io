@@ -1,1 +1,1 @@
-# WilderCo.github.io holi boli moli
+# WilderCo.github.io
